@@ -13,23 +13,28 @@ https://lnkd.in/ggwKPfH3
 9. Johns Hopkins - Biostatistics in Public Health Specialization: https://lnkd.in/g2bGxxet
 
 Writing:
+
 10. Lund - Writing in English at University: https://lnkd.in/gpMSRaAE
 11. Ecole Polytechnique: How to Write and Publish a Scientific Paper: https://lnkd.in/gPfSdCSv
 12. Stanford - Writing in the Sciences: https://lnkd.in/gSK3HbPn
 
 Study Designs:
+
 13. NUS - Quantitative and Qualitative Research for Beginners: https://lnkd.in/ggfRpway
 14. Imperial - Study Designs in Epidemiology: https://lnkd.in/gay73vX8
 15. UCT - Understanding Clinical Research: Behind the Statistics: https://lnkd.in/g6nhZjt6
 16. Johns Hopkins - Introduction to Systematic Review and Meta-Analysis: https://lnkd.in/gvA5cfbT
 
 Communication skills:
+
 17. Harvard - Rhetoric: The Art of Persuasive Writing and Public Speaking: https://lnkd.in/gxsf9KgA
 
 Grant writing:
+
 18. Udemy - Just Start Grant Writing: https://lnkd.in/gT2v9peW
 
 Project Management:
+
 19. UCI - Project Management: The Basics for Success: https://lnkd.in/gRpf7NuB
 
 Source: <a href="https://www.linkedin.com/posts/drasadnaveed_data-publichealth-research-activity-7023657214192082944-FtzJ?utm_source=share&utm_medium=member_desktop"> Asad Naveed </a>
